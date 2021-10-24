@@ -26,10 +26,7 @@ First off,  I want to thank everyone who takes the time to read my rambling I am
 Onto the article……….
 
 
-
-
-
-	I love women in general. All shapes and sizes but I feel betrayed that I did not date any women larger or heavier than me. When I was in High School ( years ago, before the iPhone ) I always tried to fit in I was looking to date a girl and a girl that was not going to get me looks or comments. I was a young scrawny looking guy who didn’t have many options because girls didn’t want to date a guy like me if I looked like a 12-year-old and was 17-18years old. 
+I love women in general. All shapes and sizes but I feel betrayed that I did not date any women larger or heavier than me. When I was in High School ( years ago, before the iPhone ) I always tried to fit in I was looking to date a girl and a girl that was not going to get me looks or comments. I was a young scrawny looking guy who didn’t have many options because girls didn’t want to date a guy like me if I looked like a 12-year-old and was 17-18years old. 
 
 It wasn’t until I graduated from college that I had the confidence to do more things that made me uncomfortable. Being comfortable is probably the best place to be in your twenties (I highly recommend anyone to try it.)  For me, I was introduced to a girl who was larger than me and wore bagging clothes. Her vibes at work were more laid back and it is hard to describe in words but I didn’t feel intimidated by her presence and was more interested in talking with her as a person. She got along with everyone.
 
